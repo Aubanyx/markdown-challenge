@@ -5,7 +5,7 @@
 >In this world, the only thing that really belongs to us...  
  It is this body that we forge every day.
 
-![image](/photo "Auban")
+![image](/photo.jpg "Auban")
 
 ####I am a calm person but addicted to coffee.
 
